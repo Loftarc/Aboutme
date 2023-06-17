@@ -1,1 +1,1 @@
-Loftarc Software 2020 Yılında Kurulmuştur Ve Amacı İse Herkese Ücretsiz Kaliteli Hizmetleri Sağlamaktır. Ve Bu Amaca Uygun Şekilde Devam Etmektedir.
+My name is kayra, studying the high school. I'm working on ProtechOne Security.
